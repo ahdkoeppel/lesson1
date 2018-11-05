@@ -5,4 +5,4 @@ Hello World.
 
 This is my first GitHub repository!
 
-![woohoo](https://media.giphy.com/media/l2JdTAyoFqDY6nEis/giphy.gif)
+![woohoo](https://thumbs.gfycat.com/SoupySeriousIndianringneckparakeet-size_restricted.gif)
